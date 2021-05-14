@@ -1,11 +1,11 @@
-title: Your awesome title
+title: Một chiếc Blog của Back
 author:
-  name: GitHub User
-  email: your-email@domain.com
+  name: Bach Ngo Xuan
+  email: bachssun123@gmail.com
 description: > # this means to ignore newlines until "show_excerpts:"
-  Write an awesome description for your new site here. You can edit this
-  line in _config.yml. It will appear in your document head meta (for
-  Google search results) and in your feed.xml site description.
+  Bach Ngo Xuan.
+  Researcher at Data Science and Knowledge Technology lab.
+  Student at University of Engineer and Technology (UET).
 
 show_excerpts: false # set to true to show excerpts on the homepage
 
@@ -16,13 +16,13 @@ minima:
 
   # generate social links in footer
   social_links:
-    twitter: jekyllrb
-    github:  jekyll
+    #twitter: jekyllrb
+    github:  backnx
     # devto: jekyll
     # dribbble: jekyll
-    # facebook: jekyll
+    facebook: https://www.facebook.com/bach.ngoxuan.5/
     # flickr:   jekyll
-    # instagram: jekyll
+    instagram: https://www.instagram.com/_bachngo_/
     # linkedin: jekyll
     # pinterest: jekyll
     # youtube: jekyll
