@@ -13,7 +13,7 @@ Chắc là mình sẽ kể theo trình tự mình nhớ cái nào trước thì 
 
 Tóm tắt thì là mình đạt điểm tuyệt đối ở kỳ I năm ba, kỳ II năm ba và mấy ngày trước thì là kỳ I của năm cuối (mong năm nay là năm cuối thật). 
 
-![Thành tích nho nhỏ của mình](/assets/imageFor2023/bangdiem.jpg)
+![Thành tích nho nhỏ của mình](/assets/imageFor2023/bangdiem.JPG)
 
 Dài dòng hơn thì trong kỳ học Online mình cảm thấy mình có nhiều thời gian để học hơn: không phải di chuyển, không thể đi chơi, hầu như toàn bộ thời gian là ở bên Laptop. Thật ra mình bắt đầu học kỳ với tâm lý khá thoải mái, không đặt nặng là phải bao nhiêu điểm. Thế rồi 4.0 đầu tiên nó đến, thì mình lại nghĩ thêm là làm thế nào để giữ, liệu mình có thể 4.0 lần nữa không, CPA cao thì được lợi này này kia này.. Và thế là mình tiếp tục, và may mắn là nó "tiếp tục" được tận hai lần.
 
@@ -25,7 +25,7 @@ Mình có một lời hẹn với NHD là mình với nó sẽ cùng đi chơi N
 
 Thế là mình đã có lần đầu tiên được đi máy bay và cũng chỉ đi một mình. Ngày đầu tiên, mình đến một quán Cafe ở đường Nguyễn Văn Nguyễn tình cờ tìm thấy trên Tiktok. Các bạn nhân viên rất dễ thương, các bạn í trò chuyện cùng mình, mời mình ăn bánh, thử thức uống mới của quán, suggest mình một vài địa điểm mình nên đến thử khi không có nhiều thời gian ở Sài Gòn. 
 
-Ngày thứ hai thì mình đi mấy điểm nổi tiếng ở Quận 1, sau đó thì về thăm nhà bác mình ở tít Quận 6. Đến tối, mình đến Khách sạn nơi diễn ra hội nghị để tham gia Gala Dinner. Đến đây mới biết là nguyên RD320 Lab rủ nhau nộp hội nghị này để đi du lịch :| Thế là mình được gặp Thư, anh Cường, anh Hoàn, ... giữa Sài Gòn.
+Ngày thứ hai thì mình đi mấy điểm nổi tiếng ở Quận 1, sau đó thì về thăm nhà bác mình ở tít Quận 6. Đến tối, mình đến Khách sạn nơi diễn ra hội nghị để tham gia Gala Dinner. Đến đây mới biết là nguyên RD320 Lab rủ nhau nộp hội nghị này để đi du lịch. Thế là mình được gặp Thư, anh Cường, anh Hoàn, ... giữa Sài Gòn.
 
 Ngày cuối thì mình đến để báo cáo rồi nhanh chóng ra sân bay ngay sau đó. Cũng hơi gấp gáp vì còn công việc khác ở Hà Nội nữa, nhưng mình vẫn cảm nhận được rất nhiều sự vui ở thành phố này rồi.
 
@@ -33,7 +33,7 @@ Ngày cuối thì mình đến để báo cáo rồi nhanh chóng ra sân bay ng
 
 ## 3. Đại diện sinh viên toàn trường phát biểu trong lễ khai giảng.
 
-Cũng nhờ **mục 1** như trên, vào một ngày chủ nhật, thầy Ninh trưởng phòng CTSV gọi điện cho mình và hỏi mình có muốn đại diện sinh viên toàn trường phát biểu trong lễ khai giảng không? Và thế là mình hôm sau đóng thùng đi lên bục phát biểu và tặng hoa thầy Hiệu trưởng. Thật ra còn một vài câu chuyện về hôm khai giảng ấy, nhưng nhìn chung thì mình cũng tự hào khi được là gương mặt đại diện trong một ngà, khi được các em K67 và cả một vài thầy cô đã từng dạy mình trầm trồ về quả GPA :| 
+Cũng nhờ **mục 1** như trên, vào một ngày chủ nhật, thầy Ninh trưởng phòng CTSV gọi điện cho mình và hỏi mình có muốn đại diện sinh viên toàn trường phát biểu trong lễ khai giảng không? Và thế là mình hôm sau đóng thùng đi lên bục phát biểu và tặng hoa thầy Hiệu trưởng. Thật ra còn một vài câu chuyện về hôm khai giảng ấy, nhưng nhìn chung thì mình cũng tự hào khi được là gương mặt đại diện trong một ngà, khi được các em K67 và cả một vài thầy cô đã từng dạy mình trầm trồ về quả GPA.
 
 Tiếc nữa là không ưng ảnh nào nên không đăng, thôi đăng tạm một cái ở đây vậy.
 
