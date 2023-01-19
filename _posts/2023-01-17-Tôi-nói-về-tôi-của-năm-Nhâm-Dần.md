@@ -51,7 +51,7 @@ Một lần tình cờ thấy trên mạng về Những thành phố mơ màng (
 
 Đến tháng 7 năm 2022 thì mình chính thức không còn là Phó chủ nhiệm của SGUET nữa. Cái nhiệm kì hầu hết là nghỉ dịch của mình diễn ra chóng vánh, đã thế mình thấy thời gian sủi còn nhiều hơn là thời gian hoạt động :D. Thôi ít nhất là cũng làm quen được với hầu hết S10, cũng nghe được drama, cũng đi gây gổ chửi nhau với người trên người dưới, cũng tham gia cùng mọi người với nhiều vai trò khác nhau. Có lẽ S11 cũng là lứa cuối cùng mình biết và nhớ được tên các em.
 
-![Ảnh đi ăn trộm](/assets/imageFor2023/NTPMM.jpg)
+![Ảnh đi ăn trộm](/assets/imageFor2023/sg.jpg)
 
 ## 6. Đạt được học bổng doanh nghiệp đầu tiên.
 
@@ -75,7 +75,7 @@ Mình may mắn là một trong tám người của UET đạt được học b�
 - Cuộn thứ tư ở Những thành phố mơ màng.
 - Cuộn thứ năm bạn HP donate đem đi chụp Legacy Yên Tử.
 - Cuộn thứ sáu đem đi chụp Sài Gòn.
-- 
+
 ![Thói quen của mình là lưu lại số thứ tự, lab tráng và film đó là film gì](/assets/imageFor2023/film.jpg)
 ## 9. 
 
