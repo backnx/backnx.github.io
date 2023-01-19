@@ -1,9 +1,9 @@
-title: Một chiếc Blog của Back 
+title: Cứ gọi mình là Back
 author:
   name: Bach Ngo Xuan
-  email: bachssun123@gmail.com
+  email: bachngo.uet@gmail.com
 description: > # this means to ignore newlines until "show_excerpts:"
-  Bach Ngo Xuan from UET.
+  
 
 show_excerpts: false # set to true to show excerpts on the homepage
 
@@ -51,7 +51,7 @@ minima:
 # - about.md
 
 # Build settings
-theme: minima
+theme: solarized-light
 
 plugins:
  - jekyll-feed
