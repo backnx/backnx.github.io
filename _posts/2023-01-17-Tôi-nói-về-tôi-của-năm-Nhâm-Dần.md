@@ -83,6 +83,7 @@ Mình may mắn là một trong tám người của UET đạt được học b�
 - Cuộn thứ sáu đem đi chụp Sài Gòn.
 
 ![Thói quen của mình là lưu lại số thứ tự, lab tráng và film đó là film gì](/assets/imageFor2023/film.jpg)
+
             *Thói quen của mình là lưu lại số thứ tự, lab tráng và film đó là film gì*
 ## 9. 
 
