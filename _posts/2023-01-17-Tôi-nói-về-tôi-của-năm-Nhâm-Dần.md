@@ -14,6 +14,7 @@ Chắc là mình sẽ kể theo trình tự mình nhớ cái nào trước thì 
 Tóm tắt thì là mình đạt điểm tuyệt đối ở kỳ I năm ba, kỳ II năm ba và mấy ngày trước thì là kỳ I của năm cuối (mong năm nay là năm cuối thật). 
 
 ![Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên :(](/assets/imageFor2023/bangdiem.jpg)
+            *Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên :(*
 
 Dài dòng hơn thì trong kỳ học Online mình cảm thấy mình có nhiều thời gian để học hơn: không phải di chuyển, không thể đi chơi, hầu như toàn bộ thời gian là ở bên Laptop. Thật ra mình bắt đầu học kỳ với tâm lý khá thoải mái, không đặt nặng là phải bao nhiêu điểm. Thế rồi 4.0 đầu tiên nó đến, thì mình lại nghĩ thêm là làm thế nào để giữ, liệu mình có thể 4.0 lần nữa không, CPA cao thì được lợi này này kia này.. Và thế là mình tiếp tục, và may mắn là nó "tiếp tục" được tận hai lần.
 
@@ -32,6 +33,7 @@ Ngày cuối mình quay lại khách sạn để present, gặp một vài ngư�
 Ấn tượng nhất của mình là các chú Be trong này đến đón khách nhanh quá, chưa mặc xong cái áo mà đã đến rồi, mà đến thì chỉ đỗ chứ không gọi điện giục khách như Be ở Hà Nội.
 
 ![Lúc đến Dinh độc lập mình gặp hai anh chị này, thấy vui nên mình xin chụp ké. Chú rể tên là Hiền còn cô dâu tên Huyền thì phải =)) ông thợ chính líu cả lưỡi khi đọc tên hai người](/assets/imageFor2023/saigon.jpg)
+            *Lúc đến Dinh độc lập mình gặp hai anh chị này, thấy vui nên mình xin chụp ké. Chú rể tên là Hiền còn cô dâu tên Huyền thì phải =)) ông thợ chính líu cả lưỡi khi đọc tên hai người*
 
 ## 3. Đại diện sinh viên toàn trường phát biểu trong lễ khai giảng.
 
@@ -40,24 +42,28 @@ Cũng nhờ **mục 1** như trên, vào một ngày chủ nhật, thầy Ninh t
 Tiếc nữa là không ưng ảnh nào nên không đăng, thôi đăng tạm một cái ở đây vậy.
 
 ![Hôm khai giảng đây](/assets/imageFor2023/khaigiang.jpg)
+            *Hôm khai giảng đây*
 
 ## 4. Lần đầu đi Show Những thành phố mơ màng.
 
 Một lần tình cờ thấy trên mạng về Những thành phố mơ màng (NTPMM) thế là mình đã rủ LMH mua vé cùng. Thành quả mang về là về nhà lúc 1 rưỡi sáng, bị ăn mắng té tát, cái chân đau như muốn lìa khỏi thân và một cuộn film bị đốt sạch trong một đêm. Thế thôi mà bảo có đi tiếp không là vẫn đi tiếp đó.
 
 ![Thành quả sau một đêm](/assets/imageFor2023/NTPMM.jpg)
+            *Thành quả sau một đêm*
 
 ## 5. Những lần cùng CLB S.
 
 Đến tháng 7 năm 2022 thì mình chính thức không còn là Phó chủ nhiệm của SGUET nữa. Cái nhiệm kì hầu hết là nghỉ dịch của mình diễn ra chóng vánh, đã thế mình thấy thời gian sủi còn nhiều hơn là thời gian hoạt động :D. Thôi ít nhất là cũng làm quen được với hầu hết S10, cũng nghe được drama, cũng đi gây gổ chửi nhau với người trên người dưới, cũng tham gia cùng mọi người với nhiều vai trò khác nhau. Có lẽ S11 cũng là lứa cuối cùng mình biết và nhớ được tên các em.
 
 ![Ảnh đi ăn trộm](/assets/imageFor2023/sg.jpg)
+            *Ảnh đi ăn trộm*
 
 ## 6. Đạt được học bổng doanh nghiệp đầu tiên.
 
 Mình may mắn là một trong tám người của UET đạt được học bổng khuyến khích Honda Award. Có thể nói là "phá dớp" trắng tay của năm nhất và năm hai vì trước cứ thấy các bạn được học bổng, đƯợc tiền cũng thèm thế nên dù điểm lúc apply không quá cao nhưng nhờ chị Nhung gạ nên mình cũng apply cùng cho vui mà không ngờ đỗ thật! 
 
 ![Ngày mà cái Certi này về cũng là ngày mình bị Covid](/assets/imageFor2023/honda.jpg)
+            *Ngày mà cái Certi này về cũng là ngày mình bị Covid*
 
 ## 7. Những chuyến đi chơi khác.
 
@@ -77,6 +83,7 @@ Mình may mắn là một trong tám người của UET đạt được học b�
 - Cuộn thứ sáu đem đi chụp Sài Gòn.
 
 ![Thói quen của mình là lưu lại số thứ tự, lab tráng và film đó là film gì](/assets/imageFor2023/film.jpg)
+            *Thói quen của mình là lưu lại số thứ tự, lab tráng và film đó là film gì*
 ## 9. 
 
 ## 10. Cuối cùng là rất nhiều lần thất bại.
