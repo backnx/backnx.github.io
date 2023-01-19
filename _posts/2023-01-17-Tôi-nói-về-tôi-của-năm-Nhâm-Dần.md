@@ -60,7 +60,7 @@ Một lần tình cờ thấy trên mạng về Những thành phố mơ màng (
 
 ## 6. Đạt được học bổng doanh nghiệp đầu tiên.
 
-Mình may mắn là một trong tám người của UET đạt được học bổng khuyến khích Honda Award. Có thể nói là "phá dớp" trắng tay của năm nhất và năm hai vì trước cứ thấy các bạn được học bổng, đƯợc tiền cũng thèm thế nên dù điểm lúc apply không quá cao nhưng nhờ chị Nhung gạ nên mình cũng apply cùng cho vui mà không ngờ đỗ thật! 
+Mình may mắn là một trong tám người của UET đạt được học bổng khuyến khích Honda Award. Có thể nói là "phá dớp" trắng tay của năm nhất và năm hai vì trước cứ thấy các bạn được học bổng, được tiền cũng thèm thế nên dù điểm lúc apply không quá cao nhưng nhờ chị Nhung gạ nên mình cũng apply cùng cho vui mà không ngờ đỗ thật! 
 
 ![Ngày mà cái Certi này về cũng là ngày mình bị Covid](/assets/imageFor2023/honda.jpg)
             *Ngày mà cái Certi này về cũng là ngày mình bị Covid*
