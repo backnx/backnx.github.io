@@ -6,8 +6,8 @@ author:
 - Bách Ngô Xuân
 meta: "Springfield"
 ---
-
-Chắc là mình sẽ kể theo trình tự mình nhớ cái nào trước thì mình kể. Sẽ cố gắng viết ngắn, hạn chế Wall of Text.
+![Ảnh bìa](/assets/imageFor2023/anhbia.jpg)
+Chắc là mình sẽ kể theo trình tự mình nhớ cái nào trước thì mình kể. Mình cũng sẽ cố gắng viết ngắn, hạn chế Wall of Text.
 
 ## 1. GPA 4.0 lần đầu tiên, và chưa phải lần cuối cùng.
 
@@ -98,7 +98,7 @@ Bù lại thì giảm tận 5 cân và giờ nhìn gầy đét.
 
 Ngoài mấy thứ rực rỡ thì có mấy gạch đầu dòng cho nhanh thì mình đã tạch những cái gì:
 
-- Tạch KSE 2023.
+- Tạch KSE.
 - Tạch Posco.
 - Tạch Mirae Asset.
 - Bỏ qua PonyChung, Mitsubishi, BIDV, MBBank, v.v.. không apply vì quá tự tin vào điểm số của mình.
