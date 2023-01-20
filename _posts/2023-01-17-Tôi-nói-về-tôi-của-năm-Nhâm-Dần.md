@@ -13,7 +13,7 @@ Chắc là mình sẽ kể theo trình tự mình nhớ cái nào trước thì 
 
 Tóm tắt thì là mình đạt điểm tuyệt đối ở kỳ I năm ba, kỳ II năm ba và mấy ngày trước thì là kỳ I của năm cuối (mong năm nay là năm cuối thật). 
 
-![Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên](/assets/imageFor2023/diem.jpg)
+![Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên](/assets/imageFor2023/diem1.jpg)
             *Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên*
 
 Dài dòng hơn thì trong kỳ học Online mình cảm thấy mình có nhiều thời gian để học hơn: không phải di chuyển, không thể đi chơi, hầu như toàn bộ thời gian là ở bên Laptop. Thật ra mình bắt đầu học kỳ với tâm lý khá thoải mái, không đặt nặng là phải bao nhiêu điểm. Thế rồi 4.0 đầu tiên nó đến, thì mình lại nghĩ thêm là làm thế nào để giữ, liệu mình có thể 4.0 lần nữa không, CPA cao thì được lợi này này kia này.. Và thế là mình tiếp tục, và may mắn là nó "tiếp tục" được tận hai lần.
@@ -106,4 +106,4 @@ Ngoài mấy thứ rực rỡ thì có mấy gạch đầu dòng cho nhanh thì 
 Rất nhiều, để lại bao nhiêu bài học, bảo tiếc thì nói thật là mình chẳng tiếc cái nào. Nhưng có vài cái mà mình cay, cay mà chỉ biết cười trừ thôi :)
 
 
-Cũng như @HiraDang thì mình cố nặn ra cho đủ số 10 tròn trĩnh. Tổng kết lại là mình đã làm được nhiều điều ngoài sức tưởng tượng của mình, đi được nhiều nơi, trải nghiệm một vài thất bại. Năm sau hứa hẹn sẽ là một năm đầy bận rộn, nhiều quyết định và ngã rẽ mà mình đã thấy khi đang viết những dòng này, nhưng mình tin nhờ năm vừa qua nên mình đang có nhiều động lực cũng như sự tự tin để bước tiếp. Cuối cùng thì mình xin chúc cho những người đã đọc đến dòng này một năm mới thật nhiều niềm vui nhaaa! Cheer!
+Cũng như @HiraDang thì mình cố nặn ra cho đủ số 10 tròn trĩnh. Tổng kết lại là mình đã làm được nhiều điều ngoài sức tưởng tượng của mình, đi được nhiều nơi, trải nghiệm một vài thất bại. Năm sau hứa hẹn sẽ là một năm đầy bận rộn, nhiều quyết định và ngã rẽ mà mình đã thấy khi đang viết những dòng này, nhưng mình tin nhờ năm vừa qua nên mình đang có nhiều động lực cũng như sự tự tin để bước tiếp. Cheer!
