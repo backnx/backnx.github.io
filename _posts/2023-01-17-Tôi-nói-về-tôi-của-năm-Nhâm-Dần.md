@@ -15,7 +15,7 @@ Tóm tắt thì là mình đạt điểm tuyệt đối ở kỳ I năm ba, kỳ
 
 ![Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên](/assets/imageFor2023/diem1.jpg)
             
-            *Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên*
+*Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên*
 
 Dài dòng hơn thì trong kỳ học Online mình cảm thấy mình có nhiều thời gian để học hơn: không phải di chuyển, không thể đi chơi, hầu như toàn bộ thời gian là ở bên Laptop. Thật ra mình bắt đầu học kỳ với tâm lý khá thoải mái, không đặt nặng là phải bao nhiêu điểm. Thế rồi 4.0 đầu tiên nó đến, thì mình lại nghĩ thêm là làm thế nào để giữ, liệu mình có thể 4.0 lần nữa không, CPA cao thì được lợi này này kia này.. Và thế là mình tiếp tục, và may mắn là nó "tiếp tục" được tận hai lần.
 
