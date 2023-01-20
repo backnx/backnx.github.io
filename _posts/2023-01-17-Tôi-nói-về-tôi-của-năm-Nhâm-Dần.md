@@ -14,7 +14,7 @@ Chắc là mình sẽ kể theo trình tự mình nhớ cái nào trước thì 
 Tóm tắt thì là mình đạt điểm tuyệt đối ở kỳ I năm ba, kỳ II năm ba và mấy ngày trước thì là kỳ I của năm cuối (mong năm nay là năm cuối thật). 
 
 ![Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên](/assets/imageFor2023/diem.jpg)
-            *Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên :(*
+            *Thật ra còn một dòng nữa biết điểm rồi mà Web chưa up lên*
 
 Dài dòng hơn thì trong kỳ học Online mình cảm thấy mình có nhiều thời gian để học hơn: không phải di chuyển, không thể đi chơi, hầu như toàn bộ thời gian là ở bên Laptop. Thật ra mình bắt đầu học kỳ với tâm lý khá thoải mái, không đặt nặng là phải bao nhiêu điểm. Thế rồi 4.0 đầu tiên nó đến, thì mình lại nghĩ thêm là làm thế nào để giữ, liệu mình có thể 4.0 lần nữa không, CPA cao thì được lợi này này kia này.. Và thế là mình tiếp tục, và may mắn là nó "tiếp tục" được tận hai lần.
 
@@ -83,6 +83,7 @@ Mình may mắn là một trong tám người của UET đạt được học b�
 - Cuộn thứ sáu đem đi chụp Sài Gòn.
 
 Đây là thư mực lưu ảnh của mình. Mình có thói quen của mình là lưu lại số thứ tự, lab tráng và film đó là film gì. Mong là năm sau sẽ kiếm thêm được nhiều tiền để chụp được gấp đôi thế này, chứ film giờ đắt quá :<
+
 ![Thói quen của mình là lưu lại số thứ tự, lab tráng và film đó là film gì](/assets/imageFor2023/film.jpg)
             
 ## 9. Mình đi niềng răng 
@@ -90,16 +91,17 @@ Tự dưng một ngày mẹ bảo mình là hay đi niềng đi, mình thấy c�
 
 Bù lại thì giảm tận 5 cân và giờ nhìn gầy đét. 
 ![Người ta cả năm trung thu có một lần, mình tháng nào cũng đi rước đèn](/assets/imageFor2023/rang.jpg)
+            *Người ta cả năm trung thu có một lần, mình tháng nào cũng đi rước đèn*
 
 ## 10. Cuối cùng là rất nhiều lần thất bại.
 
-Gạch đầu dòng cho nhanh thì mình đã tạch những cái gì:
+Ngoài mấy thứ rực rỡ thì có mấy gạch đầu dòng cho nhanh thì mình đã tạch những cái gì:
 
 - Tạch KSE 2023.
 - Tạch Posco.
 - Tạch Mirae Asset.
 - Bỏ qua PonyChung, Mitsubishi, BIDV, MBBank, v.v.. không apply vì quá tự tin vào điểm số của mình.
-- Apply Worldquant cho vui nhưng thôi cũng tạch thì ghi nốt vào.
+- Apply Worldquant, VDT cho vui nhưng thôi cũng tạch thì ghi nốt vào.
 
 Rất nhiều, để lại bao nhiêu bài học, bảo tiếc thì nói thật là mình chẳng tiếc cái nào. Nhưng có vài cái mà mình cay, cay mà chỉ biết cười trừ thôi :)
 
