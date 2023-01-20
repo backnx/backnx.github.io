@@ -19,7 +19,7 @@ Tóm tắt thì là mình đạt điểm tuyệt đối ở kỳ I năm ba, kỳ
 
 Dài dòng hơn thì trong kỳ học Online mình cảm thấy mình có nhiều thời gian để học hơn: không phải di chuyển, không thể đi chơi, hầu như toàn bộ thời gian là ở bên Laptop. Thật ra mình bắt đầu học kỳ với tâm lý khá thoải mái, không đặt nặng là phải bao nhiêu điểm. Thế rồi 4.0 đầu tiên nó đến, thì mình lại nghĩ thêm là làm thế nào để giữ, liệu mình có thể 4.0 lần nữa không, CPA cao thì được lợi này này kia này.. Và thế là mình tiếp tục, và may mắn là nó "tiếp tục" được tận hai lần.
 
-Ngoài một chút nỗ lực, tập trung hơn trước đó của bản thân thì mình may mắn được học, được chỉ bảo bởi những người thầy, người cô thực sự rất tuyệt vời, những người làm mình thay đổi rất nhiều mindset chỉ trong một năm. Cuối cùng là mình còn ăn may mấy bận nữa =))) chứ không có các cụ nhà mình gánh thằng cháu này thì mình cũng không nghĩ mình được A+ môn **2214**, **2044** với cả **3111** đâu! 
+Ngoài một chút nỗ lực, tập trung hơn trước đó của bản thân thì mình may mắn được học, được chỉ bảo bởi những người thầy, người cô thực sự rất tuyệt vời, những người làm mình có thêm hứng thú trong các môn học, thay đổi rất nhiều mindset của mình chỉ trong một năm. Cuối cùng là mình còn ăn may mấy bận nữa =))) chứ không có các cụ nhà mình gánh thằng cháu này thì mình cũng không nghĩ mình được A+ môn **2214**, **2044** với cả **3111** đâu! 
 
 ## 2. Chuyến đi Sài Gòn trong ba ngày.
 
