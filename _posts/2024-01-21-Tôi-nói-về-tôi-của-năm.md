@@ -54,3 +54,5 @@ Một lần tình cờ thấy trên mạng về Những thành phố mơ màng (
             *Ảnh đi ăn trộm*
 
 ## 8. Mình được gặp những người anh, người chị, người bạn mới tuyệt vời.
+## 9. Mình vượt qua sự sợ (và ngại) để tự đi xe máy.
+## 10. Cuối cùng vẫn là những thất bại và trì hoãn của mình.
