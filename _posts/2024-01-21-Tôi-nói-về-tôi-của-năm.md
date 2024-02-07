@@ -18,11 +18,13 @@ Mình đã nghi ngờ bản thân rất nhiều là liệu có thể duy trì c�
 ## 2. Mình giành hai học bổng cuối cùng của thời sinh viên.
 Mình dành được một học bổng KKHT và một học bổng của ngân hàng Kiraboshi - Nhật Bản. 
 ![Học bổng doanh nghiệp cuối cùng](/assets/imageFor2024/hb.jpg)
+
 Nhìn chung thì đã có nhiều drama, câu chuyện xung quanh mấy cái học bổng. Những điều này nhiều khi khiến mình cười nhạt thôi =))) nhưng nó cũng là thứ làm mình cảm thấy đã trưởng thành hơn xong suy nghĩ, nhất là biết chấp nhận hơn.
 
 ## 3. Mình không còn thất nghiệp nhờ MB.
 
 Sau khi bị (kha khá) sự từ chối của các nhà tư bản thì cũng có offer mà mình ưng ý. Bỏ qua (kha khá x2) những điều tiêu cực khó tránh chốn công sở thì đến giờ vẫn còn làm và kì vừa rồi được loại B thì chắc là vẫn tạm gắn bó được.
+
 ![Thư mời](/assets/imageFor2024/mb.jpg)
 
 ## 4. Lần đầu và lần cuối mình được đến show của Cá Hồi Hoang.
@@ -34,21 +36,20 @@ Show nhạc duy nhất trong năm mà mình đi. Mình nghe tin về show và ch
 ![Hôm khai giảng đây](/assets/imageFor2024/chh1.jpg)
 
 ## 5. Mình được đến những nơi mình chưa từng tới.
-
-
-
-![Thành quả sau một đêm](/assets/imageFor2024/anhbia.jpg)
-            *Thành quả sau một đêm*
+Năm vừa qua mình đến Lý Sơn cùng các bạn Đại học, đi FLC Vĩnh Phúc với công ty, đi Cao Bằng với khối và đi Tà Xùa với nhóm bạn cùng lớp Đại học (không phải nhóm kia). Thực ra mình muốn (và có thể) đi nhiều hơn nhưng vừa lười vừa không sắp xếp được.
+![Lý Sơn](/assets/imageFor2024/lyson.jpg)
 
 ## 6. Mình chụp được thêm 3 cuộn film.
-Năm qua hơi lười nên mình chỉ chụp được
+Vì lười nên mình chỉ chụp được ít thế này thôi, máy mình còn cho đi mượn chắc cũng phải chục lần và người khác chụp máy mình còn nhiều hơn mình.
 
-![Ảnh đi ăn trộm](/assets/imageFor2024/anhbia.jpg)
-            *Ảnh đi ăn trộm*
+![Ảnh](/assets/imageFor2024/merge.jpg)
+            *Trái Lý Sơn, phải Cao Bằng*
 
 ## 7. Mình đọc được thêm ba cuốn sách.
 Vẫn là vì lười nên từ hồi đi làm mình không đọc thêm nổi quyển sách nào. Ba quyển năm nay mình đọc được là:
-
+    - Xa ngoài kia nơi ngoài tôm hát: truyện kiểu cô gái đi tìm tình yêu đích thực, cũng hay mà kiểu tâm lý nhân vật sẽ hơi "con người" một tí.
+    - Ngàn mặt trời rực rỡ: được tặng dịp sinh nhật, viết về chiến tranh Liên Xô - Afghanistan. Quyển này đọc mình thấy tội nhân vật nữ chính, kiểu chị cố hết sức rồi nhưng mà hoàn cảnh đương thời khó quá. Đọc xúc động và cuốn nhé mọi người.
+    - Tazaki Tsukuru không màu và những năm tháng hành hương: quyển này đọc cả truyện, đọc cả review rồi mà vẫn không hài lòng về cách lý giải cốt truyện lắm. Mình thích những truyện không cần phải suy luận và dùng não nhiều nên quyển này không hợp goût lắm, cơ mà đọc cũng ổn.
 ![Ảnh đi ăn trộm](/assets/imageFor2024/anhbia.jpg)
             *Ảnh đi ăn trộm*
 
