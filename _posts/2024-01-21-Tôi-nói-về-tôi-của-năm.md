@@ -7,46 +7,60 @@ author:
 meta: "Springfield"
 ---
 ![Ảnh bìa](/assets/imageFor2024/anhbia.jpg)
-Đây sẽ là giới thiệu
 
 ## 1. Mình đã tốt nghiệp và hoàn thành chuỗi điểm tuyệt đối.
+
 ![Ảnh bảng điểm](/assets/imageFor2024/diem.jpg)
 
+Tháng 6 vừa rồi cũng là thời điểm tốt nghiệp của mình. Nhờ sự nỗ lực của bản thân, cộng thêm sự may mắn thì cái chuỗi điểm A+ này đã được giữ vững. Với mình, điểm cao một chút thì sẽ dễ xin học bổng thêm một chút.
+Mình đã nghi ngờ bản thân rất nhiều là liệu có thể duy trì cái chuỗi này không. Hầu như lúc đó mình thấy điều này cũng hay hay như một achievement nên đã có động lực nhiều hơn (và giờ là cái đem đi flex lúc phỏng vấn).
+
 ## 2. Mình giành hai học bổng cuối cùng của thời sinh viên.
-![Ảnh bảng điểm](/assets/imageFor2024/hb.jpg)
+Mình dành được một học bổng KKHT và một học bổng của ngân hàng Kiraboshi - Nhật Bản. 
+![Học bổng doanh nghiệp cuối cùng](/assets/imageFor2024/hb.jpg)
+Nhìn chung thì đã có nhiều drama, câu chuyện xung quanh mấy cái học bổng. Những điều này nhiều khi khiến mình cười nhạt thôi =))) nhưng nó cũng là thứ làm mình cảm thấy đã trưởng thành hơn xong suy nghĩ, nhất là biết chấp nhận hơn.
 
 ## 3. Mình không còn thất nghiệp nhờ MB.
 
-![Hôm khai giảng đây](/assets/imageFor2024/mb.jpg)
-            *Hôm khai giảng đây*
+Sau khi bị (kha khá) sự từ chối của các nhà tư bản thì cũng có offer mà mình ưng ý. Bỏ qua (kha khá x2) những điều tiêu cực khó tránh chốn công sở thì đến giờ vẫn còn làm và kì vừa rồi được loại B thì chắc là vẫn tạm gắn bó được.
+![Thư mời](/assets/imageFor2024/mb.jpg)
 
 ## 4. Lần đầu và lần cuối mình được đến show của Cá Hồi Hoang.
 
-![Hôm khai giảng đây](/assets/imageFor2024/chh.jpg)
-            *Hôm khai giảng đây*
+Show nhạc duy nhất trong năm mà mình đi. Mình nghe tin về show và chốt đi show chỉ sau 30 phút, tuy là fan nửa mùa thôi :(
+![Card bo góc](/assets/imageFor2024/chh.jpg)
+            *Card bo góc*
 
 ![Hôm khai giảng đây](/assets/imageFor2024/chh1.jpg)
-            *Hôm khai giảng đây*
 
 ## 5. Mình được đến những nơi mình chưa từng tới.
 
-Một lần tình cờ thấy trên mạng về Những thành phố mơ màng (NTPMM) thế là mình đã rủ LMH mua vé cùng. Thành quả mang về là về nhà lúc 1 rưỡi sáng, bị ăn mắng té tát, cái chân đau như muốn lìa khỏi thân và một cuộn film bị đốt sạch trong một đêm. Thế thôi mà bảo có đi tiếp không là vẫn đi tiếp đó.
+
 
 ![Thành quả sau một đêm](/assets/imageFor2024/anhbia.jpg)
             *Thành quả sau một đêm*
 
-## 6. Mình chụp được thêm x cuộn film.
-
+## 6. Mình chụp được thêm 3 cuộn film.
+Năm qua hơi lười nên mình chỉ chụp được
 
 ![Ảnh đi ăn trộm](/assets/imageFor2024/anhbia.jpg)
             *Ảnh đi ăn trộm*
 
 ## 7. Mình đọc được thêm ba cuốn sách.
-
+Vẫn là vì lười nên từ hồi đi làm mình không đọc thêm nổi quyển sách nào. Ba quyển năm nay mình đọc được là:
 
 ![Ảnh đi ăn trộm](/assets/imageFor2024/anhbia.jpg)
             *Ảnh đi ăn trộm*
 
 ## 8. Mình được gặp những người anh, người chị, người bạn mới tuyệt vời.
+Thay đổi môi trường giúp mình gặp gỡ thêm những người bạn mới. Dù quen nhau chưa lâu nhưng đã giận nhau phải hai lần, em xin được cảm ơn chị @chaudtt đã tấu hài và tâm sự cùng em để em đỡ buồn chốn công sở ngột ngạt. Mãi là chị em xương máu =)))
+
 ## 9. Mình vượt qua sự sợ (và ngại) để tự đi xe máy.
+Một thay đổi nhỏ nữa là trước đây mình ngại tự đi xe máy vì tay run bẩm sinh thì năm nay đã tự khắc phục được. Theo mình thì một phần do hoàn cảnh bắt buộc phải di chuyển nhiều, phần là mình muốn ngủ thêm 20p nên đành từ bỏ thói quen đi xe bus vậy :(
+
 ## 10. Cuối cùng vẫn là những thất bại và trì hoãn của mình.
+Năm qua mình tạch 4 cái học bổng vì những đủ các thể loại lý do. Có cái mình đạt đủ mọi tiêu chuẩn vẫn tạch, có cái thì gửi đủ CV rồi thì quỹ học bổng sủi mất, có cái thì quỹ quá tải đơn đợi delay hơn 1 tháng rồi vẫn đánh tạch, có cái thì mình làm chi tiết cẩn thận từng tí trong hồ sơ mà loại mình ngay từ vòng một =))))
+Ngoài ra thì năm qua mình cũng tạch 3, 4 cuộc phỏng vấn đến lúc cũng hơi nghi ngờ career path của bản thân đang xây dựng.
+Năm ngoái mình cũng hẹn là học và thi IELTS nhưng rồi vì sắp xếp, quản lý thời gian tệ từ lúc đi làm nên mình hầu như không có tiến triển gì.
+Kể cả trong công việc thì mình cũng chưa hài lòng về bản thân mình lắm, kiểu nghĩ là mình hoàn toàn có thẻ làm tốt hơn nhưng không.
+Ôi kể ra sao năm nay so với năm trước nhiều khuyết điểm hơn thật...
