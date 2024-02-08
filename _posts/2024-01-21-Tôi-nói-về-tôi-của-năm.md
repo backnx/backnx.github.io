@@ -8,6 +8,8 @@ meta: "Springfield"
 ---
 ![Ảnh bìa](/assets/imageFor2024/anhbia.jpg)
 
+Mình đã viết gấp xong trước khi về quê.
+
 ## 1. Mình đã tốt nghiệp và hoàn thành chuỗi điểm tuyệt đối.
 
 ![Ảnh bảng điểm](/assets/imageFor2024/diem.jpg)
@@ -41,9 +43,15 @@ Năm vừa qua mình đến Lý Sơn cùng các bạn Đại học, đi FLC Vĩn
 
 ## 6. Mình chụp được thêm 3 cuộn film.
 Vì lười nên mình chỉ chụp được ít thế này thôi, máy mình còn cho đi mượn chắc cũng phải chục lần và người khác chụp máy mình còn nhiều hơn mình.
+- Cuộn đầu tiên là ở Lý Sơn, cuộn này mình ưng nhất trong năm vì lần đầu mình được chụp biển, hoàng hôn trên biển rất đẹp và còn nhiều điều đẹp khác.
+- Cuộn thứ hai là ở Cao Bằng, cuộn này chụp xấu điên =))) mà toàn chụp cái gì ấy
+- Cuộn thứ ba ở Tà Xùa, toàn mây là mây và không có nắng.
 
 ![Ảnh](/assets/imageFor2024/merge.jpg)
             *Trái Lý Sơn, phải Cao Bằng*
+
+![Ảnh](/assets/imageFor2024/taxua.jpg)
+            *Tà Xùa*
 
 ## 7. Mình đọc được thêm ba cuốn sách.
 Vẫn là vì lười nên từ hồi đi làm mình không đọc thêm nổi quyển sách nào. Ba quyển năm nay mình đọc được là:
