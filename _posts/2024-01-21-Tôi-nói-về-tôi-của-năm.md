@@ -71,7 +71,11 @@ Một thay đổi nhỏ nữa là trước đây mình ngại tự đi xe máy v
 
 ## 10. Cuối cùng vẫn là những thất bại và trì hoãn của mình.
 Năm qua mình tạch 4 cái học bổng vì những đủ các thể loại lý do. Có cái mình đạt đủ mọi tiêu chuẩn vẫn tạch, có cái thì gửi đủ CV rồi thì quỹ học bổng sủi mất, có cái thì quỹ quá tải đơn đợi delay hơn 1 tháng rồi vẫn đánh tạch, có cái thì mình làm chi tiết cẩn thận từng tí trong hồ sơ mà loại mình ngay từ vòng một =))))
-Ngoài ra thì năm qua mình cũng tạch 3, 4 cuộc phỏng vấn đến lúc cũng hơi nghi ngờ career path của bản thân đang xây dựng.
+
+Ngoài ra thì năm qua mình cũng tạch 3, 4 cuộc phỏng vấn đến lúc cũng hơi nghi ngờ career path của bản thân đang cố gắng theo đuổi.
+
 Năm ngoái mình cũng hẹn là học và thi IELTS nhưng rồi vì sắp xếp, quản lý thời gian tệ từ lúc đi làm nên mình hầu như không có tiến triển gì.
+
 Kể cả trong công việc thì mình cũng chưa hài lòng về bản thân mình lắm, kiểu nghĩ là mình hoàn toàn có thẻ làm tốt hơn nhưng không.
+
 Ôi kể ra sao năm nay so với năm trước nhiều khuyết điểm hơn thật...
