@@ -53,13 +53,13 @@ Không có gì mấy ngoài tháo hàm sắt ra và đeo hàm duy trì vào.
 
 ![Ý là cũng được mười mấy tỉ](/assets/imageFor2025/mb.jpg){: width="500" }
 
-        *Ý là cũng được mười mấy tỉ (cho tư bản)*
+*Ý là cũng được mười mấy tỉ (cho tư bản)*
 
 ## 8. Kiếm được nhiều tiền và tiêu nhiều tiền.
 Năm nay ngẫm ra được một điều đúng đắn là tiền phải lưu thông thì nó mới tạo ra giá trị được. Thế nên năm nay có lẽ là năm mình kiếm được nhiều nhất và cũng tiêu nhiều nhất từ trước đến giờ. Cuộc sống ngân hàng kể ra lúc nào cũng là tiền và giá trị của đồng tiền...
 ![Năm nay mua cái này nhưng chả chụp mấy](/assets/imageFor2025/tien.jpg){: width="500" }
 
-        *Năm nay mua cái này nhưng chả chụp mấy*
+*Năm nay mua cái này nhưng chả chụp mấy*
 
 ## 9. Sức khỏe yếu đi.
 Một giai đoạn làm việc thức khuya liên tục + áp lực làm sức khỏe giảm sút thấy rõ. Mình dễ ốm hơn + sút cân + hốc hác, phờ phạc + chịu lạnh kém hẳn đi. Mong năm sau cơ thể sẽ ổn hơn chứ nó đang ở mức sắp báo động rồi.
